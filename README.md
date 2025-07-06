@@ -9,6 +9,7 @@ Look around. Online or offline, somebody is shouting at you to pick a side:
 “If you do not wear the right MAGA hat, you are a traitor.”
 
 Both sides say they fight for freedom, but both try to control how you think and speak.
+
 This small manifesto is for people who are tired of the noise and ready to protect freedom for every person, everywhere.
 
 # 1. Two Loud but Empty Flags
@@ -18,6 +19,7 @@ Identity above individuality.
 Points for outrage, not for ideas.
 
 Cancel first, ask later.
+
 Result: fear of speaking, self-censorship, endless purity tests.
 
 ## 1.2 MAGAism
@@ -26,33 +28,35 @@ Nostalgia above future.
 Emotion above evidence.
 
 “Us” above “them.”
+
 Result: closed doors, simplified history, friend-or-enemy talk.
 
 Different colors, same game:
+
 Shame outsiders, reward followers, ignore questions.
 
 # 2. Four Open Letters
 ## 2.1 To Liberals
-Real liberalism is person-first, label-second.
-Protect equal rules, not special rules for every group.
-Defend speech you dislike; that is the stress-test of tolerance.
-Leave the purity police. Come back to open debate.
+- Real liberalism is person-first, label-second.
+- Protect equal rules, not special rules for every group.
+- Defend speech you dislike; that is the stress-test of tolerance.
+- Leave the purity police. Come back to open debate.
 
 ## 2.2 To Conservatives
-Real conservatism is gardening, not taxidermy.
-Keep the roots (family, community, rule of law), prune the dead wood (corruption, exclusion), let new branches grow (innovation, newcomers).
-Patriotism is love that improves the house, not fear that locks the doors.
+- Real conservatism is gardening, not taxidermy.
+- Keep the roots (family, community, rule of law), prune the dead wood (corruption, exclusion), let new branches grow (innovation, newcomers).
+- Patriotism is love that improves the house, not fear that locks the doors.
 
 ## 2.3 To Europe
-The Enlightenment was about reason and liberty, not paperwork.
-Regulations must serve people, not the other way around.
-Simplify rules, shorten laws, translate jargon. Let citizens breathe.
+- The Enlightenment was about reason and liberty, not paperwork.
+- Regulations must serve people, not the other way around.
+- Simplify rules, shorten laws, translate jargon. Let citizens breathe.
 
 ## 2.4 To Asia and the Rest of the World
-Freedom and human rights are not “Western decorations.”
-They are universal upgrades for human life, like clean water or electricity.
-Economic growth without rights is a race car with no brakes.
-Study your own history—there are local heroes of liberty in every culture. Build on them.
+- Freedom and human rights are not “Western decorations.”
+- They are universal upgrades for human life, like clean water or electricity.
+- Economic growth without rights is a race car with no brakes.
+- Study your own history—there are local heroes of liberty in every culture. Build on them.
 
 # 3. Six Pillars of Liberty
 ## Human Dignity
